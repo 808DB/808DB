@@ -1,6 +1,6 @@
 # Hi there, I'm [Your Name]! 👋
 
-![Banner Image]([your_banner_image_url_here](https://github.com/aiko-chan-ai/aiko-chan-ai/blob/main/images/elysia.gif?raw=true))
+![Banner Image](https://tenor.com/fr/view/itachi-gif-26089254)
 
 ## About Me 🚀
 
