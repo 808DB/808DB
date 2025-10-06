@@ -1,6 +1,6 @@
 # Hi there, I'm [808, Aka Skraym, or KZQW9]! 👋
 
-![Banner Image](https://tenor.com/fr/view/itachi-gif-26089254)
+[Banner Image](https://tenor.com/fr/view/itachi-gif-26089254)
 
 ## About Me 🚀
 
